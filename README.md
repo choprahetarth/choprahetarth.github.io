@@ -1,2 +1,0 @@
-# choprahetarth.github.io
-myResume
